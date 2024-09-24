@@ -5,5 +5,5 @@ Me chamo Nathalia sou estudante do primeiro ano do ensino médio.
 
 Me chama no free fire 😜🔥🔫
 
-![](https://tenor.com/pt-BR/view/quby-run-gif-25840732?utm_source=share-button&utm_medium=Social&utm_content=pinterest)
+![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRscreLih5klbVvCIhDiEs4xzupKgwdRco8RA&s)
 
