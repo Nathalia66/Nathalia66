@@ -5,5 +5,5 @@ Me chamo Nathalia sou estudante do primeiro ano do ensino médio.
 
 Me chama no free fire 😜🔥🔫
 
-![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRscreLih5klbVvCIhDiEs4xzupKgwdRco8RA&s)
+![](https://i.pinimg.com/736x/e9/e4/ba/e9e4ba4ae3958e5f5e24415e88454269.jpg)
 
